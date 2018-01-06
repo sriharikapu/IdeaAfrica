@@ -11,16 +11,17 @@ Vision
 We envision an Africa where young people- even in most remote areas – hold the power to create opportunity for themselves and attain excellent Education.
 
 
-The Team
-Wisdom Kafui Honu – Co-founder, Executive Director
-PRINCE KWAME AGBATA – Co-founder, Head of Innovations
-Mabel Madjikie Madjie - Deputy Director
-Thelma Geleplay- Administrator
-Richard Nyamaku  - Project Cordinator
-Vincent Avedzi - Finance Officer
-Rachel Bulley  -  Volunteer Communit Officer
+>>The Team
+>>Wisdom Kafui Honu – Co-founder, Executive Director
+>>PRINCE KWAME AGBATA – Co-founder, Head of Innovations
+>>Mabel Madjikie Madjie - Deputy Director
+>>Thelma Geleplay- Administrator
+>>Richard Nyamaku  - Project Cordinator
+>>Vincent Avedzi - Finance Officer
+>>Rachel Bulley  -  Volunteer Communit Officer
 
 Projects
+
 As a volunteer driven social development organisation, our goal is to give society a second chance by equipping and empowering young rural children to realise their full aptitudes through our innovative libraries, Child sponsorships and other skills training. We run 4 main projects and over 10 annual educational programs. 
  Innovative Rural Libraries 
 Literacy- The ability to read and write—is the foundation of education and social development. Yet millions of school-aged children lack these fundamental skills simply because 90% of these children do not have access to reading and writing resources.
@@ -29,9 +30,13 @@ Idea Africa builds very innovative, creative and cost effective Libraries for ru
 
 
 Read To Kids Festival
+
 New data reports from the UNESCO Institute for Statistics (UIS) shows that 617 million children and adolescents worldwide are not achieving minimum proficiency levels in reading and mathematics. This signals “a learning crisis” according to the UIS, which could threaten progress towards the United Nations Sustainable Development Agenda.
- And it is interesting to know that Sub-Saharan Africa has the single largest number: 202 million children and adolescents are not learning these fundamental subjects.
+
+And it is interesting to know that Sub-Saharan Africa has the single largest number: 202 million children and adolescents are not learning these fundamental subjects.
+
 This is a call to action and Idea Africa is challenged to extend mobile reading events each month to communities where we will adequately expose and coach young people to very smart ways of reading to produce excellent results and also hold literacy competitions that comes with awesome prizes as motivation to our students.
+
 We believe in the power of reading and its ability to transform lives
 
 
