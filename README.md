@@ -8,7 +8,8 @@ YOU CAN CONTRIBUTE TO THE PROJECT, HELP US CONSTRUCT MORE LIBRARIES FOR CHILDREN
 
 ---
 Developers
-@sriharikapu
+@sriharikapu 
+@CamilaSanches
 
 ---
 VISIT US :
