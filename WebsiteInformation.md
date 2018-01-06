@@ -11,14 +11,14 @@ Vision
 We envision an Africa where young people- even in most remote areas – hold the power to create opportunity for themselves and attain excellent Education.
 
 
->>The Team
->>Wisdom Kafui Honu – Co-founder, Executive Director
->>PRINCE KWAME AGBATA – Co-founder, Head of Innovations
->>Mabel Madjikie Madjie - Deputy Director
->>Thelma Geleplay- Administrator
->>Richard Nyamaku  - Project Cordinator
->>Vincent Avedzi - Finance Officer
->>Rachel Bulley  -  Volunteer Communit Officer
+>The Team
+>Wisdom Kafui Honu – Co-founder, Executive Director
+>PRINCE KWAME AGBATA – Co-founder, Head of Innovations
+>Mabel Madjikie Madjie - Deputy Director
+>Thelma Geleplay- Administrator
+>Richard Nyamaku  - Project Cordinator
+>Vincent Avedzi - Finance Officer
+>Rachel Bulley  -  Volunteer Communit Officer
 
 Projects
 
