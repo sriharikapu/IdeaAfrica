@@ -11,13 +11,15 @@ Developers
 
 @sriharikapu
 
+@leomermantes
+
 @CamilaSanches
 
 ---
 VISIT US :
 
 Http://ideaafricaglobal.com
-Http://ideaafricaglobal.org
+
 
 Contact US:
 - Idea Africa P o box Ao 369 Abossey Okai – Accra Ghana West Africa 
